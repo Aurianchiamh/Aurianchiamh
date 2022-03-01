@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Aurianchiamh
+- 🌱 I’m currently studying a Bachelor of Information Technology
